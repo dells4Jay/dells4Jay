@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dells4Jay
 - 👀 I’m interested in playing online slots and sex...
 - 🌱 I’m currently learning the p2p currency
-- 💞️ I’m looking to collaborate on nitcoin wallet
+- 💞️ I’m looking to collaborate on bitcoin wallet
 - 📫 How to reach me, you just have to sync
 
 <!---
